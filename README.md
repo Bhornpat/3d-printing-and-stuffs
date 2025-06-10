@@ -6,7 +6,7 @@
 
 ![stuff](./pics/c705d5e5-0dcd-4423-8374-094f161b6e6f.jpeg)
 
-pre-printer age by hand 😂
+"pre-printer age" by hand 😂
 ![stuff](./pics/a71b872b-e2ef-4d80-913e-45b906f6aec7.jpeg)
 
 ![stuff](./pics/ad087fc4-8014-4509-9a9b-a5625be1bfe8.jpeg)
