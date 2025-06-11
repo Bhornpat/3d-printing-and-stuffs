@@ -12,9 +12,11 @@
 
 ![stuff](./pics/c705d5e5-0dcd-4423-8374-094f161b6e6f.jpeg)
 
+
 my 2nd gen of 3d printer
 ![stuff](./pics/f89c9421-d26e-4de0-8eab-7f6333241bfc.jpeg)
 
-"pre-printer base" by handmade 😂
+
+pre-printer base" by handmade 😂
 ![stuff](./pics/a71b872b-e2ef-4d80-913e-45b906f6aec7.jpeg)
 
